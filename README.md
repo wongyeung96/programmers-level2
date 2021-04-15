@@ -1,2 +1,2 @@
-programmers-level2 algorism study. ###😄
+programmers-level2 algorism study. 😄
 
